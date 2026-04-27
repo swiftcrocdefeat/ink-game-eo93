@@ -1,4 +1,4 @@
-
+Experience forsaken like never before with elite forsaken Script, the #1 Script. Includes auto-upgrade and auto-farm for unbeatable performance.
 
 
 
